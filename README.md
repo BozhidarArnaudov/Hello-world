@@ -1,2 +1,3 @@
 # Hello-world
-just another repository
+just another repository.
+Im studying in Dundee WHICH IS SICK!!! 
